@@ -35,7 +35,7 @@ Unsere Untersuchung mit **über 70 verifizierten Quellen** zeigt:
 
 ## 🎯 **WAHRSCHEINLICHE HERKUNFT DER VORWÜRFE:**
 
-Die Behauptung der "GRU-Operation" entspricht dem Muster:
+Die Aussage der "GRU-Operation" entspricht dem Muster:
 - **Verschwörungstheoretische Narrative** zur Diskreditierung
 - **Projektion tatsächlicher Angriffe** auf das Opfer
 - **Politische Instrumentalisierung** im Kontext von Rechtsextremismus-Debatten
